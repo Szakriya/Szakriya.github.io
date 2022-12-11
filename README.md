@@ -1,1 +1,0 @@
-# Szakriya.github.io
